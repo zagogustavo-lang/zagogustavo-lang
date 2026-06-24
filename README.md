@@ -11,7 +11,4 @@ Eae pae!!👋
 .🎧 Gosto de música
 
 
-
-
-![](https://tenor.com/pt-BR/view/caseoh-bunny-attack-cute-wholesome-gif-6612613242288068459)
-
+![](https://tenor.com/pt-BR/view/travis-gif-18082209)
