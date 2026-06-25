@@ -1,14 +1,16 @@
 Eae pae!!👋
 
-.🏋️ Atleta
+.🏋️ ATLETA
 
-.🖋️ Estou no primeiro ano do ensino médio
+.🖋️ ESTOU NO PRIMEIRO ANO DO ENSINO MÉDIO
 
-.📱 Fazendo curso técnico de MKT
+.📱 FAZENDO CURSO TÉCNICO DE MKT
 
 .🎮 jOGO TUDO MENOS LOL
 
-.🎧 Gosto de música
+.🎧 GOSTO DE OUVIR MÚSICA
+
+
 
 
 ![](https://media1.tenor.com/m/5CYwd5UO1vQAAAAC/travis-scott.gif)
