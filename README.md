@@ -11,4 +11,4 @@ Eae pae!!👋
 .🎧 Gosto de música
 
 
-![](https://tenor.com/pt-BR/view/travis-gif-18082209)
+![](https://media1.tenor.com/m/fCaM06eYn2cAAAAd/travis.gif)
